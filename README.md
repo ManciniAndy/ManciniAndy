@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Dr. Andy Mancini @ManciniAndy 
-- 👀 I’m interested in Pediatric Dentistry
-- 🌱 I’m currently learning Project management
-- 💞️ I’m looking to collaborate on dental health projects
+- 👀 I’m founder of Figaro Crowns, INC, - https://figarocrowns.com/
+- 🌱 I’m currently the co-founder of Purple Tooth Dental
+- 💞️ I’m looking to collaborate on health projects
 - 📫 How to reach me @ http://andymancini.com/
 
 <!---
