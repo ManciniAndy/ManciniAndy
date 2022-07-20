@@ -1,6 +1,5 @@
 - 👋 Hi, I’m Dr. Andy Mancini @ManciniAndy 
 - 👀 I’m founder of KRASA SPA CLUB, - https://www.krasaspaclub.com/
-![Uploading image.png…]()
 - 🌱 I’m currently the co-founder of Purple Tooth Dental
 - 💞️ I’m looking to collaborate on health projects
 - 📫 How to reach me @ https://andymancini.com/
